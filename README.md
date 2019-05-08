@@ -8,4 +8,4 @@ Oldest
 Product Name A - Z
 Product Name Z - A
 
-If any issue issue you can contact me at wargis.mehta@gmail.com
+If any issue you can contact us at wargis@bay20.com or manish@bay20.com
